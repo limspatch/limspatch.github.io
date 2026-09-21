@@ -103,7 +103,7 @@ Any changes will be posted on this page with an updated effective date.
 
 If you have any questions about this Privacy Policy, please contact:
 
-**Email:** [Your Email Address]
+**Email:** gozzun25@gmail.com
 
 ---
 
